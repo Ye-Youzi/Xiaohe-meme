@@ -6,4 +6,4 @@
 ***~~是上学去了不是死了啊喂~~***
 
 # 个人简历
-![image]()
+![image](https://github.com/Ye-Youzi/Xiaohe-meme/blob/main/%E5%B0%8F%E6%B2%B3%E4%B8%AA%E4%BA%BA%E7%AE%80%E5%8E%86.png)
